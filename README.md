@@ -60,7 +60,7 @@ I want to stay true to myself. I don't want to lose you again, ever. So here I a
 
 Again, I'm sorry for letting you down. I'm sorry that I will not regret good and bad things we did while we were together. I appreciate everthing you do and I genuinely love you though this doesn't matter anymore. I forgive you, even if you don't apologise I will still do. I only hope that you don't block me in any way. That's the only thing I fear. I'm sorry I can't give you a proper good bye. I want to stay in contact with you, stay in good terms though it's different from when we were together.
 
-Thank you for everything, I wish you forgiveness and all the good things from here on. You are such a strong girl living in this world, nothing can stay in your way. I will be watching, and praying for your success. Feel free to reply, I really want to know what you think.
+Thank you for everything, I wish you forgiveness and all the good things from here on. You are such a strong girl living in this world, nothing can stay in your way. I will be watching, and praying for your success. I hope you find someone you truly and genuinely love. Feel free to reply, I really want to know what you think.
 
 Sayonara,  
 Abim
